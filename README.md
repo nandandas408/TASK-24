@@ -1,1 +1,1 @@
-https://669e9353997a3109d8e80057--super-brigadeiros-f21273.netlify.app/
+https://66ec410600b9e00536fc6b91--jazzy-buttercream-ca7f32.netlify.app/
